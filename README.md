@@ -1,0 +1,1 @@
+# Degiskenler_Patika.dev
